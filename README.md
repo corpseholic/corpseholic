@@ -11,6 +11,3 @@
 ━━━━━━━━━━━━━━━━━━━
 
 
-
-![](https://64.media.tumblr.com/d5853d1fb0c7ddc19f3d39f52d6017b7/93e374d9e0e667d2-55/s1280x1920/721fcf7c4e1adcfad8eac1b02834e8539aac04b4.pnj)
-2025 is not my year.
