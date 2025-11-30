@@ -1,6 +1,6 @@
 <div id="header" align="center">
 
-[𝙖𝙩𝙖𝙗𝙤𝙤𝙠](https://spiritbox.atabook.org/)   　   　   　 ╋━━━　   　   　 [𝗿𝗲𝗻𝘁𝗿𝘆](https://rentry.co/trackcrime)   　   　   　   
+╋━━━  　   　   
    　   　   　   　   　   　   　   　   　   　   　   　   　   　   　   　
 ![](https://giffiles.alphacoders.com/113/113092.gif)
 
